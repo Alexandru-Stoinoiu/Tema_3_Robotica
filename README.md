@@ -69,3 +69,4 @@ Fire de legatura
 ## Poze si link cu functionalitatea montajului fizic
 !WIP!
 ![WhatsApp Image 2024-11-18 at 23 54 46_cb3b6d25](https://github.com/user-attachments/assets/1e59b4ce-4742-4333-b349-7410bc4f9b3c)
+![WhatsApp Image 2024-11-19 at 01 43 15](https://github.com/user-attachments/assets/da8acd6a-c44e-4e2b-99a8-66bfd7eb5f57)
